@@ -9,6 +9,12 @@ Visit Baltimore
 
 [July 4th](July-4th.md)
 
+[National Aquarium](https://aqua.org/)
+
+[Maryland Zoo](https://www.marylandzoo.org/)
+
+[B&O Railroad Museum](https://www.borail.org/)
+
 ### Restaurants
 
 ##### Mexican
